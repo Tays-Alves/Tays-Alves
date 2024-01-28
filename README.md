@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil de Tays Alves 😁
+## Bem-vindo(a) ao perfil de Tays Alves 👩🏻‍💻
 
  <div>
    <a href="https://github.com/Tays-Alves">
